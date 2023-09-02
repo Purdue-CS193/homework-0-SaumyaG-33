@@ -1,4 +1,4 @@
-# Saumya's FIrst CS193 Homework
+# Saumya's First CS193 Homework
 
 
 ## My favorite things about this class: 
