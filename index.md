@@ -3,6 +3,6 @@
 
 ## My favorite things about this class: 
 
-- The people
+- The memes
 - The location of the class
-- The TA's
+- The TA's!
